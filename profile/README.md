@@ -1,1 +1,1 @@
-## Request to become a member (or log in) to view full overview
+## Request to become a member (or log in) to view the full organisation overview
